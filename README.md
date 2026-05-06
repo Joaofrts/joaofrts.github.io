@@ -43,7 +43,6 @@ Fique à vontade para explorar e entrar em contato comigo:
 
 *   **LinkedIn:** [joao-marcelo-c-freitas](https://www.linkedin.com/in/joao-marcelo-c-freitas/)
 *   **Email:** joao.marcelo.c17@gmail.com
-*   **Instagram:** [@joao_frts](https://www.instagram.com/joao_frts/)
 
 ---
 *Desenvolvido com ☕ e dedicação.*
